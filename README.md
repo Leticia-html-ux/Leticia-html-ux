@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Leticia-html-ux
+- 👋 Hi, I’m Letícia
 
 - 🌱 I’m currently learning ...
 
